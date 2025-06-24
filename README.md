@@ -21,7 +21,7 @@
 
 点击访问：<a href="https://cg8-12.pages.dev/">TikTok成人版</a>
 
-点击访问：<a href="https://hj-143.pages.dev/">50度灰 </a>
+点击访问：<a href="https://hj-143.pages.dev/">51黑料社 </a>
 
 点击访问：<a href="https://hj-145.pages.dev/">吃瓜网站</a>
 
